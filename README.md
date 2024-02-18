@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @seamercogroup
+- 👀 I’m interested in the food industry
+- 🌱 I’m currently the construction of industrial machines 
+- 💞️ I’m looking to collaborate on In the context of setting up a factory
+- 📫 How to reach me https://seamerco.co/
